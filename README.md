@@ -1,1 +1,0 @@
-# summoner-notes-privacy-policy
